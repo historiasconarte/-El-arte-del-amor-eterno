@@ -1,1 +1,2 @@
 # -El-arte-del-amor-eterno
+"Buena suerte" de Edmund Leighton nos transporta a un mundo de caballeros y doncellas donde el amor y la valentía son protagonistas. La obra, cargada de detalles asombrosos, muestra a una doncella despidiendo a su caballero con un lazo rojo, símbolo de esperanza. Cada pincelada refleja un realismo único que celebra la caballerosidad y los valores antiguos, destacando la maestría de Leighton en la luz y la perspectiva.
